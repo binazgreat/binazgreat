@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working in a real estate database and lead management platform.<br>Looking forward to create new applications that enhance property management, United Arab Emirates<br>Contact on WhatsApp +971528226635
+I'm currently working in a real estate database and lead management platform.<br>Looking forward to create new applications that enhance property management, United Arab Emirates<br>Contact me on WhatsApp +971528226635
 
 
 ## 🌐 Socials:
