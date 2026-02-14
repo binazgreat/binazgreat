@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on healthcare automation and data management.<br>I like Software Engineering and the fun fact is I am a Nurse too.<br>I live in Addis Ababa, Ethiopia<br>You can contact me with +251911924466
+I'm currently working in a real estate database and lead management platform.<br>Looking forward to create new applications that enhance property management, United Arab Emirates<br>Contact on WhatsApp +971528226635
 
 
 ## 🌐 Socials:
